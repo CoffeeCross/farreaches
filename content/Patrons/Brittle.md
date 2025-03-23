@@ -1,0 +1,1 @@
+A wildwood halfling botanist. While not openly willing to walk headfirst into the dangerous parts of the world, he has a great desire to document every piece of flora he can get his hands on, and often tasks Pathfinder to gather samples for him. Given his reluctance to battle, many are confused as to how he ended up in such a high-ranking position in the society.

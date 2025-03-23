@@ -1,0 +1,1 @@
+A human from a royal family. While he has a good understanding of the art of war, his primary focus lies in the hunting of monsters. While his professional aims are to increase humanity’s military might in the Reaches, it’s an open secret that he aims to use Pathfinders to locate an ancient dragon rumored to have once lived in them.
